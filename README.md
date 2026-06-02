@@ -1,2 +1,2 @@
 # sample-project
-this is me vennela siri
+I am studying engineering final year.
